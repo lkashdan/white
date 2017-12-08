@@ -55,7 +55,10 @@ Without ado his simple trade;
 Material is always dying
 And got with nothing but a spade.
 
-s
+The sight of Uncle gives no pleasure,
+But rather causes much alarm:
+The children know that at his leisure
+He plans to have them come to harm.
 
 t
 
